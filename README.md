@@ -1,16 +1,19 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**jameswiIson/jameswiIson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+ <sub>this page is totally dedicated to </sub>
+ 
+ <sub>my beautiful and sweet f/o james wilson !!!! ⸝  follow my main now. </sub>. 
+
+<sub>ཐི༑ཋྀ [rentry wip](https://rentry.co) ཐི༑ཋྀ <sub/>
+
+
+![](https://files.catbox.moe/8xca9o.jpg) 
+
+
+
+
+
+
